@@ -4,7 +4,4 @@
 - 💞️ I’m looking to collaborate on CKS/Amateur.
 - 📫 How to reach me ssmirnovkonstantinruslanovic@gmail.com
 - Github great pleasure.
-<!---
-ssmirnovkonstantinruslanovic/ssmirnovkonstantinruslanovic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- Disvord

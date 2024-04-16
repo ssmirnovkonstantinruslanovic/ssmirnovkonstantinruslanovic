@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Lambda function.
 - 💞️ I’m looking to collaborate on CKS/Amateur.
 - 📫 How to reach me ssmirnovkonstantinruslanovic@gmail.com
-- Github great pleasure
+- Github great pleasureqa
 - Disvor...............?!№!@!#123456789101113

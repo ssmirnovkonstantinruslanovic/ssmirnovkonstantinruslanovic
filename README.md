@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on CKS/Amateur.
 - 📫 How to reach me ssmirnovkonstantinruslanovic@gmail.com
 - Github great pleasureqa
-- Disvor...............?!№!@!#12
+- Disvor...............?!№!@!#1
